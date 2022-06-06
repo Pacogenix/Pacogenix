@@ -3,8 +3,8 @@
 - 🌱 I’m currently learning ... programming lol
 - 💞️ I’m looking to collaborate on ... idk
 - 📫 How to reach me ... send me a message to my discord or in my yt channel
-- Discord: ThePacoGamer10#7329
-- Youtube: ThePacoGamer10
+- Discord: TPacoGamer#0784
+- Youtube: TPacoGamer
 - Spam moment
 - I speak spanish too
 
