@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ThePacoGamer10
+- 👋 Hi, I’m @TPacoGamer
 - 👀 I’m interested in ... programming
 - 🌱 I’m currently learning ... programming and animating lol
 - 💞️ I’m looking to collaborate on ... idk
